@@ -1,4 +1,5 @@
-## Hi, I'm Akil ✨<br><br>🧠 Studying Data Science at United International University<br/><br>🎨 Wanted to make Beautiful websites<br/> <br>💡 I love to do creative things<br> <br>🔗 If you want to reach me [Instagram](https://www.instagram.com/silent_gleam/) & [Facebook](https://web.facebook.com/mdakil.mahmud.1)
+## Hi, I'm Akil ✨<br>
+<br>🧠 Studying Data Science at United International University<br/><br>🎨 Wanted to make Beautiful websites<br/> <br>💡 I love to do creative things<br> <br>🔗 If you want to reach me [Instagram](https://www.instagram.com/silent_gleam/) & [Facebook](https://web.facebook.com/mdakil.mahmud.1)
 
 
 ## 🌐 Socials:
